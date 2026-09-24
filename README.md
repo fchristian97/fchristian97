@@ -43,8 +43,8 @@ Je suis passionné par l'informatique et j'ai déjà réalisé plusieurs projets
 
 ## Me contacter
 
+- [Téléphone](+50946559581)
 - 📧[email](dhfchrisy@gmail.com)
--    [Téléphone](+5094655-9581)
 - 💼 [LinkedIn](https://www.linkedin.com/in/christian-françois-940aa3188)
 ---
 
