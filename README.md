@@ -44,8 +44,8 @@ Je suis passionné par l'informatique et j'ai déjà réalisé plusieurs projets
 ## Me contacter
 
 - 📧 dhfchrisy@gmail.com
-- 💼 [LinkedIn](www.linkedin.com/in/christian-françois-940aa3188)
-;-)
+- 💼 [LinkedIn](https://www.linkedin.com/in/christian-françois-940aa3188)
+
 ---
 
 *Étudiant à l'IUS · Haïti 🇭🇹*
