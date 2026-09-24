@@ -44,8 +44,8 @@ Je suis passionné par l'informatique et j'ai déjà réalisé plusieurs projets
 ## Me contacter
 
 - 📧[email](dhfchrisy@gmail.com)
+-    [Téléphone](+5094655-9581)
 - 💼 [LinkedIn](https://www.linkedin.com/in/christian-françois-940aa3188)
-- [Téléphone](+5094655-9581)
 ---
 
 *Étudiant à l'IUS · Haïti 🇭🇹*
