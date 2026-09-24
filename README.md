@@ -1,6 +1,6 @@
 ## Christian FRANCOIS
 
-Étudiant en 3ème année d'Informatique à l'**IUS** (Institut Universitaire des Sciences) 🇭🇹
+Étudiant en dernière année de licence en Informatique à l'**IUS** (Institut Universitaire des Sciences) 🇭🇹
 
 ---
 
