@@ -46,6 +46,7 @@ Je suis passionné par l'informatique et j'ai déjà réalisé plusieurs projets
 - [Téléphone](+50946559581)
 - 📧[email](dhfchrisy@gmail.com)
 - 💼 [LinkedIn](https://www.linkedin.com/in/christian-françois-940aa3188)
+- [site](www.khrysbarrels.me)
 ---
 
 *Étudiant à l'IUS · Haïti 🇭🇹*
